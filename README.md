@@ -3,6 +3,12 @@
 #### 역대 최저가 355ML 기준 100ML당 143원 
 https://link.coupang.com/a/bjLNkq
 ![펩시제로](https://github.com/Chocolate-Fudge/drinkz/assets/67302252/0c725630-ac89-4bf5-ab80-e6c69154885d)
+<br>
+### 백산수 무라벨 생수
+### 2L 12개 기준 최저 단위가
+https://link.coupang.com/a/bjLT4x
+![image](https://github.com/Chocolate-Fudge/drinkz/assets/67302252/459901c5-4e67-4bd9-bd53-923c77576e38)
+
 
 
 
